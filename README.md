@@ -23,3 +23,5 @@ Ada beberapa alasan mengapa beberapa orang gemar bermain judi online:
 6. **Teknologi dan Inovasi:** Perjudian online terus berkembang dengan teknologi baru, seperti pengenalan taruhan langsung (live betting), permainan interaktif, dan penggunaan kecerdasan buatan. Hal ini dapat meningkatkan pengalaman berjudi dan membuatnya lebih menarik bagi sebagian orang.
 
 Meskipun ada banyak alasan mengapa orang terlibat dalam judi online, penting untuk diingat bahwa judi dapat menjadi kegiatan berisiko, dan seseorang harus selalu bermain dengan tanggung jawab. Kecanduan judi adalah masalah serius yang dapat berdampak negatif pada kehidupan seseorang, sehingga penting untuk mengenali batasan dan mencari bantuan jika diperlukan.
+
+![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fwakuwaku.webafternoon.com%2F&countColor=%23263759)
