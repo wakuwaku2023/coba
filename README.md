@@ -24,4 +24,7 @@ Ada beberapa alasan mengapa beberapa orang gemar bermain judi online:
 
 Meskipun ada banyak alasan mengapa orang terlibat dalam judi online, penting untuk diingat bahwa judi dapat menjadi kegiatan berisiko, dan seseorang harus selalu bermain dengan tanggung jawab. Kecanduan judi adalah masalah serius yang dapat berdampak negatif pada kehidupan seseorang, sehingga penting untuk mengenali batasan dan mencari bantuan jika diperlukan.
 
+## Notifikasi Anti Nawala
+Masalah utama dalam mengakses situs judi online di Indonesia adalah situs tersebut tidak dapat diakses karena terblokir nawala (internet positif). Sebenarnya, banyak layanan yang menyediakan jasa notifikasi apakah sebuah situs masuk dalam blacklist nawala, diantaranya layanan [Notifikasi Anti Nawala Gurunawala](https://gurunawala.online/).
+
 ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fwakuwaku.webafternoon.com%2F&countColor=%23263759)
